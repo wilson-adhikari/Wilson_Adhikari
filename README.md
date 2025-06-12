@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **wilsonadhikari0@gmail.com**
 
-- 📄 Know about my experiences [right now i dont have any](right now i dont have any)
+- 📄 Know about my experiences right now i dont have any
 
 - ⚡ Fun fact **I'm crazy and I have lots of fun when I work on any project**
 
