@@ -12,7 +12,8 @@
 - ⚡ Fun fact **I'm crazy and I have lots of fun when I work on any project**
 
 <h3 align="left">Connect with me:</h3>
-<p align="left">
+<p align="left"> email : wilsonadhikari0@gmail.com <br>
+    insta : wilsonadhikari
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
